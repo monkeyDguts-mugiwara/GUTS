@@ -2,9 +2,9 @@
 
 **eai, meu nome é Gustavo eu vou falar um tiquinho sobre mim:**
 
-**°ONE PIECE**
+**°ADORO ONE PIECE**
 
-**°JOGAR**
+**°AMO JOGAR**
 
 **°SOU BASTANTE EMPENHADO NAS COISAS QUE EU FAÇO**
 
